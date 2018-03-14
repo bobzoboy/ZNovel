@@ -1,0 +1,2 @@
+# ZNovel
+Not Ready
